@@ -1,1 +1,0 @@
-Rakup Barter
